@@ -1,0 +1,2 @@
+- [[Ajegunle]]deki cehennem tarikatına beraber engel olmuştuk.
+- Yönetim halka kalacaktı sözde ama onun yerine Asmadeus tarikatı almış yönetimi.

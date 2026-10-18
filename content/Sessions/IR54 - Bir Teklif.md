@@ -1,0 +1,29 @@
+
+- **Reel Tarih**: 18.10.2026 
+- **Ingame Tarih**: 07.01.1834 - xx ?
+- [[IR54 - Bir Teklif]] - şeytanla anlaşMA
+---
+- Düğün / taç törenine 1. zümreden kimse katılmadı.
+- [[Efraste]] patrik oldu.
+- Rabdudakaların lideri ([[Gizlebert]]) şansölye olmuş.
+- [[Iyanda Shestendeliath]] engizitör olmuş.
+- [[Ajegunle]]'de cehennem tarikatı yok olmamış hala.
+	- Bunlar bir artifact getirmiş galiba?
+- [[Kardinal Karl]] hala uzaktaki şapelde.
+	- Ona ve şükerasına bir şey yapmazsak, 2. zümredeki diğer kişilerin de geri gelip, reformlara katılacağını söylemiş (bir ateşkes).
+- [[Theo]], [[Prens Philon]]'la arayı iyi tutmak istiyor
+- [[Mareşal Franz]] ve tayfası bir şey bekliyormuş gibi
+	- Birlikler teyakkuzda
+- Hazine kötü durumdaymış
+- [[Eldarşi]]'ye vali atanmamış daha - bekleyen bir kriz
+- [[Harald]], [[Adelheid Meyer]]'le muhabbet etti. Döndüğümüzde biraz daha konuşalım dediler.
+- [[Arikante]] üzerinden yola çıkıyoruz [[Ajegunle]]'ye. [[Iyanda Shestendeliath]]da da bizimle geliyor.
+- [[Olu]]'da [[Prens Philon]]'la görüştük, yeni duruma en azından sözlü olarak karşı çıkmadı.
+	- [[Pharis]] de +1 dedi, mecburen.
+## Ajegunle
+- Son 6ayda şehir gelişmiş baya.
+- Herkes bireysel anlaşmalar yapıyor ve bu durumla çok mutlular.
+- Adalet sarayında gittik
+- [[7 Parçalı Asa]] / Mutlak Kanun Asası - Cennet Örüntüsüyle de ilgisi var gibi. Bu 7 parça tekrar doğru sırayla birleşirse, mutlak düzeni tesir etme gücüne sahip olacak.
+- Asanın ilk parçasıyla tanrılarla iletişim. 
+- Karşılığında [[Erathis]] kilisesinden bir asa istiyor.
